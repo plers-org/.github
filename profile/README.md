@@ -1,1 +1,1 @@
-![img](https://github.com/user-attachments/assets/96f6b49c-691b-4283-8f1a-2e73b7939646)
+![Group 45](https://github.com/user-attachments/assets/6b2e6c31-228d-4be0-a9d5-53fc9a6ab672)
